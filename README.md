@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @axaraa a.k.a andra wahyu
 - 👀 I’m interested to be a programmer 
-- 🌱 I’m currently still leraning
+- 🌱 I’m currently still learning
 - 💞️ I’m looking to collaborate with everybody
 
 
