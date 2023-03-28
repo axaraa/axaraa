@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @axaraa a.k.a andra wahyu
+- 👋 Hi, I’m @axaraa a.k.a ANDRA WAHYU PERMANA
 - 👀 I’m interested to be a programmer 
 - 🌱 I’m currently still learning
 - 💞️ I’m looking to collaborate with everybody
